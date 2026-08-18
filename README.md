@@ -1,6 +1,8 @@
 # ChillinzTagz
 Gorilla Tag Name Tag mod! where u can see players platform and name from far!
 
+GUYS IF THIS DETECTS AS A VIRUS, ITS FALSE POSITIVE
+
 this nametag mod has alot of things like showing whos legit or not!
 very cool and probably best looking one!
 
