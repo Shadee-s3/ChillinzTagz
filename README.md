@@ -6,7 +6,7 @@ GUYS IF THIS DETECTS AS A VIRUS, ITS FALSE POSITIVE
 this nametag mod has alot of things like showing whos legit or not!
 very cool and probably best looking one!
 
-<img width="1920" height="1080" alt="Gorilla Tag_2026-08-18_14-49-45" src="https://github.com/user-attachments/assets/9d6fa1e3-37f1-4a7f-883e-cee161e2c199" />
+<img width="1920" height="1080" alt="Gorilla Tag_2026-08-19_14-29-43" src="https://github.com/user-attachments/assets/8888e72e-7dd7-4696-9535-138f50f2fe65" />
 
 if you want it! go to releases and get it!
 
