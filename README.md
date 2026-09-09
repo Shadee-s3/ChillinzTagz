@@ -10,5 +10,5 @@ very cool and probably best looking one!
 
 if you want it! go to releases and get it!
 
-and last thing! join my discord! https://discord.gg/CJKrpuUCq
+and last thing! join my discord! https://discord.gg/vSA2vhj4Z
 enjoy!
