@@ -10,5 +10,7 @@ very cool and probably best looking one!
 
 if you want it! go to releases and get it!
 
+![Downloads](https://img.shields.io/github/downloads/Shadee-s3/ChillinzTagz/total)
+
 and last thing! join my discord! https://discord.gg/Hesg7UD2Y
 enjoy!
